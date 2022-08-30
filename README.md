@@ -1,1 +1,1 @@
-This is F.R.I.E.N.D.S sitcom Quiz 
+This is F.R.I.E.N.D.S sitcom Quiz
